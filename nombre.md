@@ -1,3 +1,3 @@
 Julio Alberto Molinera Ariza 
 
-Que hace una abeja en un gimnasio ?? Zumba XD
+Que hace una abeja en un gimnasio Zumba
